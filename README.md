@@ -1,1 +1,1 @@
-# Sustainable Smart City-
+# Sustainable Smart City
